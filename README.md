@@ -14,6 +14,6 @@
 最重要的是，平台重视用户隐私，采用HTTPS加密技术保障信息安全，确保观影过程无任何干扰和隐患。
 总的来说，日本AV免费平台凭借免注册、免付费、高清画质、丰富内容和安全保障，成为了影迷们理想的观影选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/x20250705/x08 ）</span>
 
 
